@@ -1,3 +1,3 @@
-### Hi there ### 👋, are you ready? 💻🎮🚀👾🔥, 🄻🄾🄰🄳🄸🄽🄶...
+### Hi there ### 👋, are you ready? 💻🔥
 
-![mr robot](https://user-images.githubusercontent.com/90146636/155008905-16a5e8e3-1adb-4583-b0f8-d2ef083c2089.gif)
+![mr robot](https://user-images.githubusercontent.com/90146636/155009521-5fae5d73-b0a1-47ac-902d-0b46fa2998d6.gif)
